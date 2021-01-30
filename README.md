@@ -21,4 +21,4 @@
 
 
 
-These tips often involve getting your mind away from the source of stress....  :)
+These tips often involve getting your mind away from the source of stress....  :-)
